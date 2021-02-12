@@ -1,2 +1,2 @@
 # generator
-free steam key generator only education purpose
+only education purpose
